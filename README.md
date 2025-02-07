@@ -1,4 +1,4 @@
-Women’s Rights Website 🌸
+Birlikte Guclu Kadinlar Website 🌸
 
 This website is designed to raise awareness about women’s rights and provide a platform for information, sharing, and support. With a user-friendly interface, it offers content in various categories. Here’s an overview of the pages and what they offer:
 
